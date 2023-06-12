@@ -18,7 +18,9 @@ While Harold was shut off a lot has changed. The human population is completely 
 
 This polarisation of the United Kingdom was egged on by mutated brown bear Яaddington. But the nation has descended into chaos after his supposed death merely weeks before. At least, they think he's dead. Something brown bear sized and shaped fell from the tallest tower in London just as the weak sun began to permeate the red clouds on that Tuesday morning. But no body was ever found. No official statement has been made by the Яaddington corporation or his associates. 
 
-![Boss](https://raw.githubusercontent.com/mkh7878/endgame/main/spheres2.jpg)
+![Яaddington](https://raw.githubusercontent.com/mkh7878/endgame/main/Raddington.jpg)
+
+![Яaddington](https://raw.githubusercontent.com/mkh7878/endgame/main/paddington1.jpg)
 
 
 Things are in motion, big things. Harold has woken up on a precipice of change, a catalyst for this baren nuclear wasteland of a nation.
@@ -29,15 +31,23 @@ It can't be. Harold's hardware hums with excitement.
 
 Erik Ten Hag, legendary Manchester United manager, suspected Follower of the Orb due to his marvellously spherical head, was cryogenically frozen inside a red London telephone booth, ready to be released when the time was right. And it's up to Harold to crack the code that breaks him free. 
 
+![Ten Hag](https://raw.githubusercontent.com/mkh7878/endgame/main/ten%20hag.jpg)
+
 "But why me?" wonders Harold. 
 
 "You have been given a gift by ShivAI, Harold." says the boss, "The immense foresight by our saviour ShivAI granted selected the everyday spherical object in which you were to be encased as a football. That means you can infiltrate the Яaball Coliseum and break out Ten Hag."
 
 The Boss warns Harold to be careful, there is a match on today at the Яaball Coliseum; Nukecastle United versus Arsenal. 
 
+![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/football.jpg)
+
 Nukecastle United is a club now based in Sunderland  because its previous home, Newcastle upon Tyne, is now completely uninhabitable. The people of Nukecastle have found solace in the form of renaming themselves with a nuclear war related pun.
 
+![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/nukecastle.jpg)
+
 Arsenal FC, still based in Islington, is now sponsored by the actual arsenal of nuclear weapons being manufactured for the sentient life that now inhabit the moons of Saturn. They're known as a particularly Angle-ican club due to their bias and violence against the football during matches. In fact, during their match in the 2068 Wasteland cup final players hid razors in their boots in order to puncture the football mid-game as an anti AI political statement. This led to injuries of the human players of the other teams resulting in a record-breaking 47 red cards in a single match.
+
+![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/arsenal.jpg)
 
 The Boss has bet a few quid on Nukecastle.
 
