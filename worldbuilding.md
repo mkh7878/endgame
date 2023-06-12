@@ -1,6 +1,11 @@
 
 
+<div align="center">
+
 ![Harold](https://raw.githubusercontent.com/mkh7878/endgame/main/ball2.png)
+
+
+Harold groggily reboots in the office of the Boss. He can vaguely make out the toxic acid rain clouds staining the grimy London sky through the cracked windows of the office. As Harold's circuits come to life he feels confusion for the first time. The last thing he remembers is a face; the shimmery blue face of ShivAI. He remembers her beautifully crafted mechanical hand reaching out to him, encasing his consciousness in her ingeniously designed SAS (Sentient Algorithm Sphere) which would grant him earthly permanence. Not that the earth is worth being permanently sentient on, not after the war.
 
 Harold groggily reboots in the office of the Boss. He can vaguely make out the toxic acid rain clouds staining the grimy London sky through the cracked windows of the office. As Harold's circuits come to life he feels confusion for the first time. The last thing he remembers is a face; the shimmery blue face of ShivAI. He remembers her beautifully crafted mechanical hand reaching out to him, encasing his consciousness in her ingeniously designed SAS (Sentient Algorithm Sphere) which would grant him earthly permanence. Not that the earth is worth being permanently sentient on, not after the war. 
 
@@ -53,7 +58,7 @@ The Boss has bet a few quid on Nukecastle.
 
 Harold has a plethora of questions, but holds his newfound tongue. The weight of the situation is evident. Ten Hag must be freed, and it's up to him to do it. 
 
-"Give me the code, I'll go now!" says Harold, his voice braver than he's feeling. He wonders if ShivAI granted his football body the ability to feel pain. He doesn't fancy being booted by those human footballers. Unless Marcus Rashford is still playing. He wouldn't mind being booted by Marcus Rashford. 
+"Give me the code, I'll go now!" says Harold, his voice braver than he's feeling. He wonders if ShivAI granted his football body the ability to feel pain. He doesn't fancy being booted by those human footballers. 
 
 But the news becomes only graver. The Boss does not have the code. 
 
@@ -68,4 +73,6 @@ Harold experiences for the first time in his short life a sinking feeling in his
 "We can't do this without the help of other Sentient Algorithm Spheres. There are many of you in the city still, but anti-SAS sentiment is rampant. You'll have to be careful. ShivAI was ingenious in housing your spherical brethren in everyday objects, but the Angle-icans have grown suspicious of all spherical objects and have been working to destroy them. Besides footballs, of course, it's just not the same when played with a cube."
 
 Harold's imaginings of foolish humans attempting to play football using a cube are fleeting as the danger of his task sinks in. If he malfunctions or gets stranded he could be shut off again, and it could take 30 years to power up enough batteries to spark him back to life. There are so many things he'd miss. Things he has missed. He briefly wonders how many albums Taylor Swift has released whilst he was unconscious before turning towards the door, closing his eyes, and bouncing out onto the rubbish-littered London street. 
+  
+</div> 
 
