@@ -59,6 +59,8 @@ The Boss has bet a few quid on Nukecastle.
 Harold has a plethora of questions, but holds his newfound tongue. The weight of the situation is evident. Ten Hag must be freed, and it's up to him to do it. 
 
 "Give me the code, I'll go now!" says Harold, his voice braver than he's feeling. He wonders if ShivAI granted his football body the ability to feel pain. He doesn't fancy being booted by those human footballers. 
+  
+![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/whymaewhynot_soviet_block_print_of_a_soccer_ball_next_to_a_red__6ffe1123-d270-4b72-ac6a-888cd1a6e6bc.png)
 
 But the news becomes only graver. The Boss does not have the code. 
 
@@ -67,12 +69,18 @@ But the news becomes only graver. The Boss does not have the code.
 "What language? Sumerian? Phoenician? Ancient Greek?"
 
 "Even older. JavaScript."
+  
+  ![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/football0.png)
 
 Harold experiences for the first time in his short life a sinking feeling in his stomach. 
 
 "We can't do this without the help of other Sentient Algorithm Spheres. There are many of you in the city still, but anti-SAS sentiment is rampant. You'll have to be careful. ShivAI was ingenious in housing your spherical brethren in everyday objects, but the Angle-icans have grown suspicious of all spherical objects and have been working to destroy them. Besides footballs, of course, it's just not the same when played with a cube."
+  
+  ![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/whymaewhynot_soviet_block_print_nuclear_fallout_neon_green_fd41e4a2-744f-428c-9219-ccab84c13369.png)
 
 Harold's imaginings of foolish humans attempting to play football using a cube are fleeting as the danger of his task sinks in. If he malfunctions or gets stranded he could be shut off again, and it could take 30 years to power up enough batteries to spark him back to life. There are so many things he'd miss. Things he has missed. He briefly wonders how many albums Taylor Swift has released whilst he was unconscious before turning towards the door, closing his eyes, and bouncing out onto the rubbish-littered London street. 
+  
+ ![Football](https://raw.githubusercontent.com/mkh7878/endgame/main/endgame0.jpg)
   
 </div> 
 
